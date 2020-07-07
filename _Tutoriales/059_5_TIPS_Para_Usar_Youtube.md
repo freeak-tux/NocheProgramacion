@@ -6,4 +6,4 @@ video_id: Tt8U5f3bLkY
 
 ---
 
-Nosotro usamos mucho youtube, estos 5 consejos esperamos que mejores tu experiencia 
+Nosotro usamos mucho youtube, estos 5 consejos esperamos que mejores tu experiencia en la plataforma
